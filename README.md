@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on web development<br>👯 I’m looking to collaborate on <br>🤝 I’m looking for help with learn more about programming<br>🌱 I’m currently learning cyber security<br>💬 Ask me about anything if you need<br>⚡am interest for All thing about programming
+🔭 I’m currently working on web development<br>🤝 I’m looking for help with learn more about programming<br>🌱 I’m currently learning cyber security<br>💬 Ask me about anything if you need<br>⚡am interest for All thing about programming
 
 
 ## 🌐 Socials:
